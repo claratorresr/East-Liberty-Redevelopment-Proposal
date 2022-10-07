@@ -1,1 +1,1 @@
-# EastLibertyRedevelopmentProposal
+# East Liberty Redevelopment Proposal
